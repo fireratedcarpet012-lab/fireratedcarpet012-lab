@@ -1,16 +1,16 @@
-## Hi there 👋
+# Fire Rated Carpet Dubai
 
-<!--
-**fireratedcarpet012-lab/fireratedcarpet012-lab** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Fire Rated Carpet Dubai supplies and installs UAE-certified flame-retardant carpets for offices, hotels, hospitals, malls and homes. Less smoke, high durability, easy cleaning, custom designs, free consultation and expert installation.
 
-Here are some ideas to get you started:
+- Website: https://fireratedcarpet.gt.tc/
+- Phone: +971 55 7297120
+- Email: info@fireratedcarpet.ae
+- Address: Al Quoz 4, Dubai, United Arab Emirates
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+## Why choose fire rated carpet?
+
+- Certified safety and flame resistance
+- Less smoke
+- High durability and easy cleaning
+- Custom designs
+- Free consultation and expert installation
